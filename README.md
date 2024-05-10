@@ -1,1 +1,1 @@
-Meu projeto fial primeiro trimestre
+Meu projeto final do primeiro trimestre
